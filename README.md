@@ -1,1 +1,0 @@
-# KamiLimu_6.0_git102
